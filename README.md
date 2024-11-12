@@ -5,7 +5,6 @@
 Telegram: @Torayev_A_A
 LinkedIn: https://www.linkedin.com/in/abduazizxon-turayev-a42835320/
 Discord: @abduazizxon
-- 😄 Pronouns: ...
 - ⚡ Fun fact: Actually, I'm 3D modeling artist, but I'm interested in programming because of curiosity
 
 <!---
